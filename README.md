@@ -6,7 +6,8 @@ H1! S0 I l0ve hazb1n hote1 1dk what t0 say- next
 
 
 
-<img width="507" height="492" alt="517950824-3624b296-f05d-4bcf-8a38-c8abf10d1424" src="https://github.com/user-attachments/assets/777d8716-b2b6-49e5-a38c-07305593deef" />
+<img width="507" height="492" alt="517950824-3624b296-f05d-4bcf-8a38-c8abf10d1424" src="https://github.com/user-attachments/assets/777d8716-b2b6-49e5-a38c-07305593deef" /><img width="340" height="340" alt="vox-hazbin-hotel" src="https://github.com/user-attachments/assets/409c90f5-4f6e-4b30-95df-a02bd06f58b6" />
+
 
 
 
