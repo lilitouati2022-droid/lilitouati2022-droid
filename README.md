@@ -8,10 +8,10 @@ H1! S0 I l0ve hazb1n hote1 1dk what t0 say- next ⋆°.☾⋆.ೃ࿔*:⋆
 
 <img width="507" height="492" alt="517950824-3624b296-f05d-4bcf-8a38-c8abf10d1424" src="https://github.com/user-attachments/assets/777d8716-b2b6-49e5-a38c-07305593deef" /><img width="340" height="340" alt="vox-hazbin-hotel" src="https://github.com/user-attachments/assets/409c90f5-4f6e-4b30-95df-a02bd06f58b6" />
 
-
+      𓆩༺✧༻𓆪 
 ⋆°.☾⋆.ೃ࿔*:⋆⋆°.☾⋆.ೃ࿔*:⋆
 
-1nsan1ty
+꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 COLOR MY TREE https://colormytree.me/2025/01KC7DPXCZX2S0Q8HA572CFSGD
 README.md-->
 <img width="1280" height="244" alt="517951790-532b111f-8472-4502-a73f-cf196576b22d" src="https://github.com/user-attachments/assets/cc12d113-61b3-4c83-acf3-f046f567313e" />
