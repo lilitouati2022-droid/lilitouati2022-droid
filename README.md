@@ -1,6 +1,7 @@
 ## Hi there 👋
 H1! S0 I l0ve hazb1n hote1 1dk what t0 say- next
-(https://github.com/user-attachments/assets/a0e8e8b2-edd3-42b4-90f8-4a8712456a49)
+![images](https://github.com/user-attachments/assets/d75e91ee-7f61-4112-8ba4-57c7c63ca88f)
+
 
 
 
